@@ -1,3 +1,3 @@
-# Hey there 👋, I'm Usef!
+# Hey there 👋
 
 ---
